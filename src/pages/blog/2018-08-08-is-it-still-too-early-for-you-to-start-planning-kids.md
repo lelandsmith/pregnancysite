@@ -6,7 +6,8 @@ description: >-
   If you are a passionate and ambitious working women or want to enjoy life more
   before you get deep into responsibilities, this blog is for you!
 tags:
-  - betahcg
+  - flavor
+  - tasting
 ---
 So I had a late marriage and the thought of not been able to conceive or even having slightest of difficulties in conceiving never crossed my mind. And, like any other couple we wanted to enjoy the married life for few years having fun and then start a family.
 
