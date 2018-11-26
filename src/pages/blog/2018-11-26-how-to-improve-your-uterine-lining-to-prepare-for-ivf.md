@@ -22,8 +22,8 @@ This was my 1st failed transfer and the reality basically struck me and I starte
 
 Here's a list of all that I tried to increase the endometrium thickness
 
-1. Acupuncture
-2. L-Argenine Sachet - Helps in increasing blood flow
+1. **Acupuncture**: I decided to change my doctor when i read up on importance of endometrium thickness and that with 6.5 mm I had 1 in a million chance to conceive. And I stumbled upon articles which mentioned acupuncture does help in increasing the blood circulation and thus may have indirect impact on the lining. I started looking for places which were into acupuncture. The doctor I went to next was so blunt about my chances of conceiving due to my age that I was almost in tears. But due to this quality of his I decided to get treatment from there. He said he'll observe me for one cycle before committing to giving me any treatment and all he started me with that was acupuncture and asked me to start meditation. And here I was in my first cycle with him (observation cycle) with almost touching 7.5 mm endometrium thickness.
+2. **L-Argenine Sachet** - Helps in increasing blood flow
 3. Self Fertility Massage
 4. Self Acupressure
 5. Walk, Walk, Walk
