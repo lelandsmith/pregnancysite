@@ -23,3 +23,11 @@ This was my 1st failed transfer and the reality basically struck me and I starte
 Here's a list of all that I tried to increase the endometrium thickness
 
 1. Acupuncture
+2. L-Argenine Sachet - Helps in increasing blood flow
+3. Self Fertility Massage
+4. Self Acupressure
+5. Walk, Walk, Walk
+6. Lose weight
+7. Try detox therapy from Ayurveda
+8. No alcohol
+9. Minimize your intake of caffeine
